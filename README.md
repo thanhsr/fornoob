@@ -1,4 +1,4 @@
-# [https://fornoob.com/](ForNoob) - Knowledge for noob
+# ForNoob]([https://fornoob.com/) - Knowledge for noob
 
 [https://www.facebook.com/fornoobdotcom/](https://www.facebook.com/fornoobdotcom/)
 
